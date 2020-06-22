@@ -1,0 +1,1 @@
+# MIMUW-S4-JAIO-Egzamin
